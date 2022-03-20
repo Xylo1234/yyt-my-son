@@ -1,1 +1,1 @@
-# yyt-my-son
+# dont be dumb
